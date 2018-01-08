@@ -39,11 +39,11 @@ Prof:
 
 > Je suis parti avant qu'ils fassent AC unity, vous voyez le resultat.
 
-Loi de murfi:
+Loi de murphy:
 
 > Tout ce qui est susceptible de mal touner, tournera necessairement mal.
 
-La *loi de mufi* tombera au partiel.
+La *loi de murphy* tombera au partiel.
 
 Le vrai but de se cours est de nous sensibiliser:
 
